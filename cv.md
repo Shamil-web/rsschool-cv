@@ -4,6 +4,7 @@
 * __Location__: Azerbaijan, Baku
 * __Email__: beidullaevshamil@gmail.com
 * __Github__: @Shoma-web
+* __WhatsApp__: +79284200236
 ----
 # About me
 
